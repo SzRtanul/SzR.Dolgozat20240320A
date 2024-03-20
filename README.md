@@ -1,0 +1,1 @@
+# SzR.Dolgozat20240320A
